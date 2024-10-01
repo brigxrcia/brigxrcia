@@ -10,8 +10,6 @@
 
 
 
-
-
-
 ♡ Have any questions? you can contact me via email @briyettevgarcia@gmail.com
+
 ♡ Let's connect! www.linkedin.com/in/briyette-victoria-garcia
