@@ -4,7 +4,6 @@
     
 ★ Immersive Media Design at UMD comes with two tracks, the B.S and B.A track. I'm completing the B.A track where it focuses on creative coding, digital design, and so much more.
 
-♡ Here on my github, you can find the code from my previous classwork and projects, and soon to be personal projects!
 
   ★ Wanna find more of my work? Here's the link to my portfolio! https://sites.google.com/view/aicragirb/home?authuser=1
 
