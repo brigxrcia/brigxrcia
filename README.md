@@ -5,11 +5,11 @@
 ★ Immersive Media Design at UMD comes with two tracks, the B.S and B.A track. I'm completing the B.A track where it focuses on creative coding, digital design, and the use of game engines.
 
 
-  ★ Wanna find more of my work? Here's the link to my portfolio! https://sites.google.com/view/aicragirb/home?authuser=1
+  ★ Wanna find more of my work? Here's the link to my portfolio! (under construction)
 
 
 
-♡ Have any questions? you can contact me via email @briyettevgarcia@gmail.com
+
 
 ♡ Let's connect! www.linkedin.com/in/briyette-victoria-garcia
 
